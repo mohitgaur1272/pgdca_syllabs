@@ -12,3 +12,15 @@ paper 3
 ```
 https://chatgpt.com/share/ee5591bf-0724-482a-ba88-84d646917da1
 ```
+paper4 
+```
+https://chatgpt.com/share/c60b6447-38cb-4f64-9af1-33bb0f0e6fbd
+```
+paper 5
+```
+https://chatgpt.com/share/6786f6f0-f52a-44e1-b88c-2731687fca08
+```
+paer 6
+```
+https://chatgpt.com/share/1100f9e7-9ee8-4cc1-b115-1bb772224142
+```
