@@ -24,3 +24,17 @@ paer 6
 ```
 https://chatgpt.com/share/1100f9e7-9ee8-4cc1-b115-1bb772224142
 ```
+paper 7
+```
+```
+paper 8
+```
+https://chatgpt.com/share/c9985c2f-6e01-4174-93d1-bbae80f3ce05
+```
+paper 9 
+```
+
+```
+paper 10 
+```
+```
