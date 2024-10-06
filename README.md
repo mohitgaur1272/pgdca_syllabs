@@ -26,6 +26,7 @@ https://chatgpt.com/share/1100f9e7-9ee8-4cc1-b115-1bb772224142
 ```
 paper 7
 ```
+https://chatgpt.com/share/f11497f3-3fbf-4714-a6f8-cc3882a27e2e
 ```
 paper 8
 ```
@@ -33,8 +34,9 @@ https://chatgpt.com/share/c9985c2f-6e01-4174-93d1-bbae80f3ce05
 ```
 paper 9 
 ```
-
+https://chatgpt.com/share/4d0e0f33-1c02-4c05-ad08-31870d88dde1
 ```
 paper 10 
 ```
+https://chatgpt.com/share/9bef895f-7974-4744-95be-8b636cccc867
 ```
